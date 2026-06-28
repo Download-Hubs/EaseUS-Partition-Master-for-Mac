@@ -1,0 +1,1 @@
+# EaseUS-Partition-Master-for-Mac
